@@ -1,3 +1,3 @@
-# Comm 260. fall 2025
+# Comm 260. Fall 2025
 
 Megan Greaves
